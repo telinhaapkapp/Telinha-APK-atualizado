@@ -1,5 +1,6 @@
 # Telinha APK v4.0 (Atualizado 2025) Download versão mais recente
 ![Telinha APK - Filmes e Series](https://github.com/telinhaapkapp/Telinha-APK-atualizado/blob/main/Telinha%20APK%20-%20Filmes%20e%20Series.png?raw=true)
+
 O Telinha APK é um aplicativo de streaming de filmes e séries que oferece uma experiência de entretenimento diversificada e acessível.
 
 Você já imaginou ter acesso a um catálogo gigantesco de filmes, séries e programas de TV, tudo em alta definição e sem pagar nada? O **Telinha APK** é a resposta para quem busca uma experiência de streaming completa e gratuita em dispositivos Android. Desenvolvido pela **TLN Solution**, este aplicativo vem ganhando destaque em 2025 por sua interface intuitiva, funcionalidades avançadas e suporte a streaming em 4K.  
